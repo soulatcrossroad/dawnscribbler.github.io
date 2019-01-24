@@ -1,10 +1,10 @@
 ---
 layout: page
-title: About
+title: Favourite Resources
 permalink: /about/
 ---
 
-## Favourite Resources
+
 1. [CatholicSaints.mobi](http://catholicsaints.mobi) 
 2. [Universalis](http://universalis.com/) for Divine Office Prayers
 3. [Word Among Us](https://wau.org/meditations/) daily Mass Reading meditations
