@@ -6,7 +6,7 @@ description: "Jesus was at home in Capernaum."
 keywords: "paralytic, healing, forgiving sins"
 ---
 
-<div style="text-align: justify">
+<div class="align-justify">
 The better question should have been, “Which is harder to accomplish?” and I think the answer is the forgiveness of sins because the people were right in their judgement, _“No one has the power to forgive sins but God.”_ The challenge was for them to realise that Jesus **is** God. It interesting, therefore, that Jesus reasoned that this was easier and decided to use this route to heal the man by first saying, _“Child, your sins are forgiven”_. 
 
 Jesus was at home in Capernaum; He went back to the place where He was brought up. Everybody knew Him from childhood; they had watched Him grow and there had been nothing out of the ordinary about Him. Therefore, when news reached them of how extraordinary Jesus was; how He had been doing great things everywhere else, they gathered to see and hear for themselves. 
