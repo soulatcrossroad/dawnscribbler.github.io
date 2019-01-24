@@ -4,4 +4,9 @@ title: About
 permalink: /about/
 ---
 
-Introduce yourself here... so people will know who you are and what you do.. blah..blah..blah..
+## Favourite Resources
+1. [CatholicSaints.mobi](http://catholicsaints.mobi)
+2. [Universalis] (http://universalis.com/) 
+3. [Word Among Us] (https://wau.org/meditations/)
+4. [Roman Catholic Archdiocese of Singapore] (https://www.catholic.sg/archbishop/scripture-reflection/)
+
