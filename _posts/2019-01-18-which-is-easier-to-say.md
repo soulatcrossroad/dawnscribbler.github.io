@@ -21,7 +21,7 @@ The second stone is that Jesus answered an unspoken, maybe even unknown, need of
 And they were right; their faith paid off. He did know and He removed both the spiritual and physical paralysis. All without either the paralysed man or his friends saying one word. All through all the ceremony of getting to Jesus, not one word he uttered; he just lay there, paralysed, but expectant and ready. And at the word of Jesus, he got up – no longer paralysed – and _“went out before them all”_.
 
 ```
-### Mass Readings for the day
+**Mass Readings for the day**
  Heb 4:1-5, 11
  Ps 78:3 and 4bc, 6c-7, 8
  Mk 2:1-12
