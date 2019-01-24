@@ -5,7 +5,7 @@ comments: false
 description: "Jesus was at home in Capernaum."
 keywords: "paralytic, healing, forgiving sins"
 ---
-
+<div class=text-justify>
 The better question should have been, “Which is harder to accomplish?” and I think the answer is the forgiveness of sins because the people were right in their judgement, _“No one has the power to forgive sins but God.”_ The challenge was for them to realise that Jesus **is** God. It interesting, therefore, that Jesus reasoned that this was easier and decided to use this route to heal the man by first saying, _“Child, your sins are forgiven”_. 
 
 Jesus was at home in Capernaum; He went back to the place where He was brought up. Everybody knew Him from childhood; they had watched Him grow and there had been nothing out of the ordinary about Him. Therefore, when news reached them of how extraordinary Jesus was; how He had been doing great things everywhere else, they gathered to see and hear for themselves. 
@@ -19,7 +19,7 @@ The words, _"Son of Man"_ and _"Authority"_ are disturbing because they still al
 The second stone is that Jesus answered an unspoken, maybe even unknown, need of the paralysed man. The man and his friends had faith; great faith not only in the power of Jesus to heal but in the _abundance of His mercy_ that if they could get Jesus to see the man, Jesus will know what to do, without being asked. Maybe they had the insight that the paralysis wasn’t just physical? Maybe they didn’t? But it is certain that they were certain that Jesus knew what needed to be done, and that He would do it because they didn't say anything after letting the paralytic down and neither did the paralytic. Dangle the bait and see if it catches?
 
 And they were right; their faith paid off. He did know and He removed both the spiritual and physical paralysis. All without either the paralysed man or his friends saying one word. All through all the ceremony of getting to Jesus, not one word he uttered; he just lay there, paralysed, but expectant and ready. And at the word of Jesus, he got up – no longer paralysed – and _“went out before them all”_.
-
+</div>
 ```
 No language indicated, so no syntax highlighting.
 But let's throw in a <b>tag</b>.
