@@ -3,7 +3,7 @@ title_left    : "Dawn"
 title_right   : "Scribbler" # default: ""
 description   : "Let there be Light"
 keywords      : "Jekyll, theme, free, download, SEO, blog, web, minimalist, thinkspace"
-url           : https://dawnscribbler.github.io/ # site url
+url           : https://dawnscribbler.github.io # site url
 baseurl       : "" # apply repo name like "/myproject" if used under gh-pages branch, else (under master branch) just leave empty/blank
 cover         : "assets/images/dawn.jpeg" # image uri like logo/cover image for site seo
 
