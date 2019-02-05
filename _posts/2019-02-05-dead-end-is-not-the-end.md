@@ -31,8 +31,8 @@ up and gone on quietly with her life not even daring to hope in anything
 anymore, which is why it’s amazing that she was out about in a crowded place.
 Shouldn’t she have stayed out of sight and out of mind, skulking in dark and
 lonely places? And yet, if she stayed home and skulked, would she had heard
-about Jesus? Clearly, her hope was still alive, only that she need to put it in
-the right place. After twelve long years, she finally placed here hope in the
+about Jesus? Clearly, her hope was still alive, only that she needed to put it in
+the right place. *“She had heard the reports about Jesus, and came up behind him in the crowd and touched his garment”(Mark 5:25-27)*. And after twelve long years, she finally placed here hope in the
 right place and was rewarded instantly. *“And immediately the haemorrhage
 ceased; and she felt in her body that she was healed of her disease” (Mark
 5:29)*.
