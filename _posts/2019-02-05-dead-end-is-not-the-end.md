@@ -22,7 +22,7 @@ there are two other things to note. The first is that they have one common theme
 running through, and that is that both the woman and the man are dealing with
 dead ends.
 
-The woman has been living for twelve years with haemorrhage and *“had … spent
+The woman has been living for twelve years with haemorrhage and *“had spent
 all that she had, and was no better but rather grew worse.” (Mark 5:25-26)*. She
 is the classic case of the person dealing with an old situation that hadn’t been
 resolved and had no possibility of being resolved by any human means; the more
