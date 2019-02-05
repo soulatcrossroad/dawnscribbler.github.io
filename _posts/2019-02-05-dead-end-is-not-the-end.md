@@ -45,12 +45,10 @@ the synagogue. But it seems he was to be tested even further; he came for a
 healing and before that happened, death came along: *"Your daughter is dead.
 Why trouble the Teacher any further?" (Mark 5:35)* This is a major shift in
 plan! Who knows how long it took him to work up his faith to the point that he
-can believe enough to ask Jesus for a cure, and now what is he to do? Clearly,
-he has to recalibrate that faith and boost it so as to be able to ask for the
+could believe enough to ask Jesus for a cure, and now what was he to do? Give up? Clearly,
+he had to recalibrate that faith and boost it so as to be able to ask for the
 impossible, but could he? Would he? He wouldn’t have been able to if Jesus
-didn’t suggest that even at this point, it wasn’t the end because what follows
-is: *“But ignoring what they said, Jesus said to the ruler of the synagogue, "Do
-not fear; only believe." (Mark 5:35)*.
+hadn’t suggested that even at that point, it wasn’t the end:*“But ignoring what they said, Jesus said to the ruler of the synagogue, "Do not fear; only believe." (Mark 5:35)*.
 
 This, therefore, bring us to the second point to note about two seemingly
 different and independent stories which may not necessarily be so. This point is
@@ -95,7 +93,7 @@ of the Psalmist has promised us, *“those who seek him shall praise the LORD!�
 (Psalms 22:25)*
 
 *“Go in peace, and be healed of your disease… The child is not dead but
-sleeping… “.* If our lives – our circumstances – have not ended in Jesus, then
+sleeping…”.* If our lives – our circumstances – have not ended in Jesus, then
 it is not the end.
 
 
