@@ -2,7 +2,7 @@
 layout: post
 title: "Dead End is not the end"
 comments: false
-description: "Woman with flow of blood, Jarius daughter raised from the dead"
+description: "Feb 5th 2019 Mass Reading Reflection"
 keywords: "haemorrhage, healing, raising from dead"
 ---
 
