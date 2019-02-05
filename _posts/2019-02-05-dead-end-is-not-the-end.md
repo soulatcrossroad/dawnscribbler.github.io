@@ -58,9 +58,9 @@ the woman; she was already healed. She knew that. Jesus knew that. Maybe an
 affirmation of the woman’s courage was necessary so that she had no doubts about
 her miracle, but it didn’t need to be so public. Jesus is normally humble and
 tells people not to speak about the fact that He healed them but they normally
-disobey which in turn causes problems for Him later on, but yet here He is
-shouting in a crowd*, “who touched my garments?!!!”* And yet how else would
-Ja’irus have been able to keep faith in Jesus *(Mark 5:35)* even after news of
+disobey which in turn causes problems for Him later on. In fact, after the healing of Ja’irus' daugter, Jesus *“strictly charged them that no one should know this" (Mark 5:43)*, but yet here He was
+shouting in a crowd, *“who touched my garments?!!!”(Mark 5:30)* And yet how else would
+Ja’irus have been able to keep faith in Jesus even after news of
 death had reached them?
 
 Ja’irus had asked Jesus to, *“Come and lay your hands on her” (Mark 5:23)* and
