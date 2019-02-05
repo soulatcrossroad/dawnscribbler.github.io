@@ -42,7 +42,7 @@ changing situations. He thought his work was already done by calling Jesus to
 save his daughter, and certainly, it takes a lot of strength of character to
 fall at the feet of Jesus as this man was in a powerful position – a ruler of
 the synagogue. But it seems he was to be tested even further, he came for a
-healing and before that can happen, death comes along: *"Your daughter is dead.
+healing and before that could happen, death came along: *"Your daughter is dead.
 Why trouble the Teacher any further?" (Mark 5:35)* This is a major shift in
 plan! Who knows how long it took him to work up his faith to the point that he
 can believe enough to ask Jesus for a cure, and now what is he to do? Clearly,
