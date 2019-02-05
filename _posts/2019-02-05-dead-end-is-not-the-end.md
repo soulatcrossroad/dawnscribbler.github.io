@@ -70,10 +70,10 @@ performed independent of Jesus’ physical body parts or consciousness; power le
 Him through an item of clothing simply because of great faith in Him: *“Jesus,
 perceiving in himself that power had gone forth from him” (Mark 5:30)*. It is
 also very comical that there is a role reversal between Jesus and His disciples
-in that they are the ones now pointing out how absurd Jesus sounds: "You see the
-crowd pressing around you, and yet you say, \`Who touched me?'"(Mark 5:35). I
+in that they are the ones now pointing out how absurd Jesus sounds: *"You see the
+crowd pressing around you, and yet you say, \`Who touched me?'”(Mark 5:35)*. I
 can almost see them rolling their eyes, but clearly, not only Ja’irus needed a
-lesson in the mysterious workings of God because Ja’irus too were rewarded
+lesson in the mysterious workings of God. Ja’irus too were rewarded
 instantly: *“And immediately the girl got up and walked (she was twelve years of
 age)” (Mark 5:42).*
 
