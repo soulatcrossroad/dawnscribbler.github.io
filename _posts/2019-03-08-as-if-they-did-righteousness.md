@@ -1,11 +1,12 @@
 
 ---
 layout: post
-title: "Which is easier to say?"
+title: "as if they did righteousness"
 comments: false
-description: "Jesus was at home in Capernaum."
-keywords: "paralytic, healing, forgiving sins"
+description: "March 18th Mass Reading Reflection"
+keywords: "fasting, Lent "
 ---
+
 
 It is possible that we feel overburdened by the weight of the observances for Lent. This could be because we, like the people in the First Reading, feel like it serves no purpose as God doesn’t seem to be listening or acting in our favour. Even if we do manage to do something for Lent, our motivation might not be so pure either; it is possible that we do it so that we can use it as a bargaining chip for our later dealings with God.
 
@@ -19,9 +20,7 @@ When God answered the people’s complaint, He brought to light their selfishnes
 
 In the Gospel, Jesus is also telling the disciples of John to check their motivation. “Can the wedding guests mourn as long as the bridegroom is with them?” The days are coming when the bridegroom will be taken away from them, and then they will fast.” (Mt. 9:15). Jesus intimates that what we do in ‘the days that are coming’ will come from a deep place in our heart and not from outside. The fast that will occur in the absence of the bridegroom will not be because somebody told them to fast, but from sorrow and grief. 
 
-This is why Lent is not simply a period to do or undo things – to observe or abstain only for the sake of the guideline and timeline we have been given. Neither is Lent simply a break in transmission from our routine. It is not “pray, fast and give alms for 40 days and then continue life as usual”. Lent is a journey until we get to ‘the days that are coming’’. We examine ourselves, and our motivations so that we know exactly what we should be doing at every point in time. 
-
-If we examine ourselves thoroughly, we will see ourselves clearly. Examination involves asking questions not relying on our judgements; we must ask God questions to help us see clearly. The people in the First Reading and the Gospel asked, and they received their answers. In their own mind they were righteous people. In our own minds, also, we are not really bad people. We need God’s standard of judgement if we are to make any progress in our lives – physical or spiritual. 
+This is why we should not simply do or undo things – to observe or abstain only for the sake of the guideline and timeline we have been given. Instead, we should examine ourselves, and our motivations so that we know exactly what we should be doing at every point in time. If we examine ourselves thoroughly, we will see ourselves clearly. Examination involves asking questions not relying on our judgements; we must ask God questions to help us see clearly. The people in the First Reading and the Gospel asked, and they received their answers. In their own mind they were righteous people. In our own minds, also, we are not really bad people. We need God’s standard of judgement if we are to make any progress in our lives – physical or spiritual. 
 
 May we ask. May we receive an answer. May we respond. If today, you hear His voice, harden not your heart. “A heart contrite and humbled, O God, you will not spurn” (Ps 51:19)
 
