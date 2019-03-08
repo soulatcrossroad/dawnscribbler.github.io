@@ -1,9 +1,9 @@
 ---
 layout: post
-title: "Dead End is not the end"
+title: "...as if they did righteousness"
 comments: false
-description: "Feb 5th 2019 Mass Reading Reflection"
-keywords: "haemorrhage, healing, raising from dead"
+description: "Mar 8th 2019 Mass Reading Reflection"
+keywords: "fasting, healing, Lent"
 ---
 
 
