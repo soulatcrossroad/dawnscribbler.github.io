@@ -6,100 +6,27 @@ description: "Feb 5th 2019 Mass Reading Reflection"
 keywords: "haemorrhage, healing, raising from dead"
 ---
 
-The readings today speak of how things can never so bad that there is no hope
-for us if we but know where exactly to place our hope. The burden of living is
-tiresome and hectic; there always seems to be something to deal with. It’s
-either something new and unpredictable happens which seems to foil our carefully
-laid-out plans or it’s one of the many old situations that we have not found
-resolutions to and which remain as thorns in the side.
 
-The Gospel is a two-for-the-price-of-one story. At first sight, they seem to be
-different and independent stories; one of a courageous woman who reached out and
-snatched her miracle, and another of a powerful man who humbled himself and
-asked for a miracle. But, apart from the fact that the woman had been suffering
-from the flow of blood for as long as the girl had been alive – twelve years,
-there are two other things to note. The first is that they have one common theme
-running through, and that is that both the woman and the man are dealing with
-dead ends.
+It is possible that we feel overburdened by the weight of the observances for Lent. This could be because we, like the people in the First Reading, feel like it serves no purpose as God doesn’t seem to be listening or acting in our favour. Even if we do manage to do something for Lent, our motivation might not be so pure either; it is possible that we do it so that we can use it as a bargaining chip for our later dealings with God.
 
-The woman has been living for twelve years with haemorrhage and *“had spent
-all that she had, and was no better but rather grew worse.” (Mark 5:25-26)*. She
-is the classic case of the person dealing with an old situation that hadn’t been
-resolved and had no possibility of being resolved by any human means; the more
-she did, the worse things were getting. I would think she should have just given
-up and gone on quietly with her life not even daring to hope in anything
-anymore, which is why it’s amazing that she was out about in a crowded place.
-Shouldn’t she have stayed out of sight and out of mind, skulking in dark and
-lonely places? And yet, if she stayed home and skulked, would she had heard
-about Jesus? Clearly, her hope was still alive, only that she needed to put it in
-the right place. *“She had heard the reports about Jesus, and came up behind him in the crowd and touched his garment”(Mark 5:25-27)*. And after twelve long years, she finally placed here hope in the
-right place and was rewarded instantly. *“And immediately the haemorrhage
-ceased; and she felt in her body that she was healed of her disease” (Mark
-5:29)*.
+There are some bad things we do because nobody “significant” is looking at us, and lots more we do because it feels like God is not looking at us. Even when we realise that we are wrong, we drag our feet to make amends because the consequences are not immediate. But God does see. But He says nothing. Unless He is asked.
 
-The man, Ja’irus, is the classic case of one who has to adapt himself to
-changing situations. He thought his work was already done by calling Jesus to
-save his daughter, and certainly, it takes a lot of strength of character to
-fall at the feet of Jesus as this man was in a powerful position – a ruler of
-the synagogue. But it seems he was to be tested even further; he came for a
-healing and before that happened, death came along: *"Your daughter is dead.
-Why trouble the Teacher any further?" (Mark 5:35)* This is a major shift in
-plan! Who knows how long it took him to work up his faith to the point that he
-could believe enough to ask Jesus for a cure, and now what was he to do? Give up? Clearly,
-he had to recalibrate that faith and boost it so as to be able to ask for the
-impossible, but could he? Would he? He wouldn’t have been able to if Jesus
-hadn’t suggested that even at that point, it wasn’t the end:*“But ignoring what they said, Jesus said to the ruler of the synagogue, "Do not fear; only believe." (Mark 5:35)*.
+It is when things don’t go our way, and we are in tight spots, that we begin to complain to God. And then we bring out our bargaining chip, “Why do we fast and you see it not? Why have we humbled ourselves and take no knowledge of it?”(Is. 58:3) Why do we not also say to God, “Why did we do bad things and you see it not? Great sins we commit, and you offer no retribution for them?” We want God to see our good, but we pay no mind to our bad. 
 
-This, therefore, bring us to the second point to note about two seemingly
-different and independent stories which may not necessarily be so. This point is
-that the miracle of the woman with the flow of blood was necessary to boost the
-faith of Ja’irus. And I say this because Jesus didn’t have to call attention to
-the woman; she was already healed. She knew that. Jesus knew that. Maybe an
-affirmation of the woman’s courage was necessary so that she had no doubts about
-her miracle, but it didn’t need to be so public. Jesus is normally humble and
-tells people not to speak about the fact that He healed them but they normally
-disobey which in turn causes problems for Him later on. In fact, after the healing of Ja’irus' daugter, Jesus *“strictly charged them that no one should know this" (Mark 5:43)*, but yet here He was
-shouting in a crowd, *“who touched my garments?!!!”(Mark 5:30)* But how else would
-Ja’irus have been able to keep faith in Jesus even after news of
-death had reached them?
+It is easy to interpret the First Reading as: doing good trumps external observances. And of course, this seems to make things easier as we can simply find a mindless activity that will satisfy the basic requirements of the Lenten observance. But I feel that the deeper message is that we need to examine our motivations for doing or not doing anything for God. 
 
-Ja’irus had asked Jesus to, *“Come and lay your hands on her” (Mark 5:23)* and
-now he got a chance to witness something much greater than his own request. He
-witnessed a healing just by the touch of… Jesus’ garments! A miracle was
-performed independent of Jesus’ physical body parts or consciousness; power left
-Him through an item of clothing simply because of great faith in Him: *“Jesus,
-perceiving in himself that power had gone forth from him” (Mark 5:30)*. It is
-also very comical that there is a role reversal between Jesus and His disciples
-in that they are the ones now pointing out how absurd Jesus sounds: *"You see the
-crowd pressing around you, and yet you say, \`Who touched me?'”(Mark 5:35)*. I
-can almost see them rolling their eyes, but clearly, not only Ja’irus needed a
-lesson in the mysterious workings of God. Ja’irus too were rewarded
-instantly: *“And immediately the girl got up and walked (she was twelve years of
-age)” (Mark 5:42).*
+When God answered the people’s complaint, He brought to light their selfishness. We seek good things from God, but we are not willing to do good to and for others. We claim to love the things of God and delight in Him, but only so long as this ensures that we keep getting good things from God. His response highlights two things: God wants to be loved for Himself and He wants whatever good gift He gives to us to be used for the benefit of others. He wants us to give to Him because of love of Him, and to ask and get things from Him because of love of neighbour.
 
-Adding Jesus to mix makes things change immediately. Which is why Saint Paul
-urges us in the first reading*, “Consider him who endured from sinners such
-hostility against himself, so that you may not grow weary or fainthearted.”
-(Hebrews 12:3)*. Consider Him. Consider Jesus. Anytime things seem crazy.
-Anytime things seem like loose ends, dead ends.... Anytime. Every time. So that
-you may not grow weary or fainthearted. For the Ruler of the Synagogue, the
-haemorrhaging woman was his faith booster. In our case, we have not only one
-woman but multitudes which serve as our faith booster: *“…we are surrounded by
-so great a cloud of witnesses” (Hebrews 12:1)* so that we keep, *“looking to
-Jesus the pioneer and perfecter of our faith” (Hebrews 12:2).* Nothing is bad
-that can’t be reversed. No matter what. No matter for how long. No matter our
-capabilities or incapabilities of adapting to change. Because God, in the words
-of the Psalmist has promised us, *“those who seek him shall praise the LORD!”
-(Psalms 22:25)*
+In the Gospel, Jesus is also telling the disciples of John to check their motivation. “Can the wedding guests mourn as long as the bridegroom is with them?” The days are coming when the bridegroom will be taken away from them, and then they will fast.” (Mt. 9:15). Jesus intimates that what we do in ‘the days that are coming’ will come from a deep place in our heart and not from outside. The fast that will occur in the absence of the bridegroom will not be because somebody told them to fast, but from sorrow and grief. 
 
-*“Go in peace, and be healed of your disease… The child is not dead but
-sleeping…”.* If our lives – our circumstances – have not ended in Jesus, then
-it is not the end.
+This is why we should not simply do or undo things – to observe or abstain only for the sake of the guideline and timeline we have been given. Instead, we should examine ourselves, and our motivations so that we know exactly what we should be doing at every point in time. If we examine ourselves thoroughly, we will see ourselves clearly. Examination involves asking questions not relying on our judgements; we must ask God questions to help us see clearly. The people in the First Reading and the Gospel asked, and they received their answers. In their own mind they were righteous people. In our own minds, also, we are not really bad people. We need God’s standard of judgement if we are to make any progress in our lives – physical or spiritual. 
 
+May we ask. May we receive an answer. May we respond. If today, you hear His voice, harden not your heart. “A heart contrite and humbled, O God, you will not spurn” (Ps 51:19)
 
 ```
-Mass Readings for the day
- Hebrews 12:1-4
- Psalms 22:26-28, 30-32
- Mark 5:21-43
+Friday after Ash Wednesday
+Is 58:1-9a
+Ps 51:3-4, 5-6ab, 18-19
+Mt 9:14-15
+
 ```
