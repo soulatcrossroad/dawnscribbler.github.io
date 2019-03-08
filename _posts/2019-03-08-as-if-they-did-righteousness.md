@@ -24,9 +24,11 @@ This is why we should not simply do or undo things – to observe or abstain –
 Examination involves asking questions not relying on our judgements; we must ask God questions to help us see clearly. The people in the First Reading and the Gospel asked, and they received their answers. In their own mind they were righteous people. In our own minds, also, we are not really bad people. We need God’s standard of judgement if we are to make any progress in our lives – physical or spiritual. 
 
 May we ask. May we receive an answer. May we respond. If today, you hear His voice, harden not your heart. “A heart contrite and humbled, O God, you will not spurn” (Ps 51:19)
-
+[Friday after Ash Wednesday](http://www.usccb.org/bible/readings/030819.cfm)
+[Universalis](http://universalis.com/)
 ```
 [Friday after Ash Wednesday](http://www.usccb.org/bible/readings/030819.cfm)
+[Universalis](http://universalis.com/)
 Is 58:1-9a
 Ps 51:3-4, 5-6ab, 18-19
 Mt 9:14-15
