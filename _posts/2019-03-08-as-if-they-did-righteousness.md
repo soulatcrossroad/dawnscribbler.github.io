@@ -6,6 +6,7 @@ comments: false
 description: "March 8th 2019 Mass Reading Reflection"
 keywords: "Fasting, Lent, Examination"
 ---
+
 It is possible that we feel overburdened by the weight of the observances for Lent. This could be because we, like the people in the First Reading, feel like it serves no purpose as God doesn’t seem to be listening or acting in our favour. Even if we do manage to do something for Lent, our motivation might not be so pure either; it is possible that we do it so that we can use it as a bargaining chip for our later dealings with God.
 
 There are some bad things we do because nobody “significant” is looking at us, and lots more we do because it feels like God is not looking at us. Even when we realise that we are wrong, we drag our feet to make amends because the consequences are not immediate. But God does see. But He says nothing. Unless He is asked.
