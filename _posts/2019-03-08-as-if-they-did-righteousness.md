@@ -1,7 +1,7 @@
 
 ---
 layout: post
-title: "…as if they did righteousness"
+title: "...as if they did righteousness"
 comments: false
 description: "Questions on Fasting."
 keywords: "fasting"
