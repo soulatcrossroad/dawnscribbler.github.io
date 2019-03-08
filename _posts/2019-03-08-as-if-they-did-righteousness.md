@@ -6,7 +6,7 @@ description: "Mar 8th 2019 Mass Reading Reflection"
 keywords: "fasting, healing, Lent"
 ---
 
-[Friday after Ash Wednesday](http://www.usccb.org/bible/readings/030819.cfm)
+[Friday after Ash Wednesday](https://www.ewtn.com/daily-readings/?date=2019-03-08)
 
 ```
 Is 58:1-9a
