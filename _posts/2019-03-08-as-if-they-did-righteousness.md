@@ -26,7 +26,7 @@ Examination involves asking questions not relying on our judgements; we must ask
 May we ask. May we receive an answer. May we respond. If today, you hear His voice, harden not your heart. “A heart contrite and humbled, O God, you will not spurn” (Ps 51:19)
 
 ```
-Friday after Ash Wednesday
+[Friday after Ash Wednesday] (http://www.usccb.org/bible/readings/030819.cfm)
 Is 58:1-9a
 Ps 51:3-4, 5-6ab, 18-19
 Mt 9:14-15
