@@ -9,7 +9,7 @@ keywords: "fasting, healing, Lent"
 
 It is possible that we feel overburdened by the weight of the observances for Lent. This could be because we, like the people in the First Reading, feel like it serves no purpose as God doesn’t seem to be listening or acting in our favour. Even if we do manage to do something for Lent, our motivation might not be so pure either; it is possible that we do it so that we can use it as a bargaining chip for our later dealings with God.
 
-There are some bad things we do because nobody “significant” is looking at us, and lots more we do because it feels like God is not looking at us. Even when we realise that we are wrong, we drag our feet to make amends because the consequences are not immediate. But God does see. But He says nothing. Unless He is asked.
+There are some bad things we do because nobody “significant” is looking at us, and lots more we do because it feels like God is not looking at us. Even when we realise that we are wrong, we drag our feet to make amends because the consequences are not immediate. But God does see. And He says nothing. Unless He is asked.
 
 It is when things don’t go our way, and we are in tight spots, that we begin to complain to God. And then we bring out our bargaining chip, “Why do we fast and you see it not? Why have we humbled ourselves and take no knowledge of it?”(Is. 58:3) Why do we not also say to God, “Why did we do bad things and you see it not? Great sins we commit, and you offer no retribution for them?” We want God to see our good, but we pay no mind to our bad. 
 
