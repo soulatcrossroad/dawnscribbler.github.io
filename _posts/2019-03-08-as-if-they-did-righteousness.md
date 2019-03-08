@@ -1,7 +1,7 @@
 
 ---
 layout: post
-title: "...as if they did righteousness"
+title: "as if they did righteousness"
 comments: false
 description: "March 8th 2019 Mass Reading Reflection"
 keywords: "Fasting, Lent, Examination"
