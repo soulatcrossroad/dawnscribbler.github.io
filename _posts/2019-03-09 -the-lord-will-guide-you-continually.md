@@ -8,7 +8,8 @@ keywords: "fasting, healing, Lent"
 
 [Saturday after Ash Wednesday](https://www.ewtn.com/daily-readings/?date=2019-03-09)
 
-```Is 58:9b-14
+```
+Is 58:9b-14
 Ps 86:1-2, 3-4, 5-6
 Lk 5:27-32
 ```
