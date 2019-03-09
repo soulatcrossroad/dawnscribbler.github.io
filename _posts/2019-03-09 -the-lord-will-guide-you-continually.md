@@ -2,8 +2,8 @@
 layout: post
 title: "...the LORD will guide you continually"
 comments: false
-description: "Mar 8th 2019 Mass Reading Reflection"
-keywords: "fasting, healing, Lent"
+description: "Mar 9th 2019 Mass Reading Reflection"
+keywords: "doctor, sinners, repentance, Lent"
 ---
 
 [Saturday after Ash Wednesday](https://www.ewtn.com/daily-readings/?date=2019-03-09)
