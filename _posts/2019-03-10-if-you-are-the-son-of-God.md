@@ -1,4 +1,3 @@
-
 ---
 layout: post
 title: "If you are the Son of God ..."
