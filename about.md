@@ -4,9 +4,9 @@ title: About
 permalink: /about/
 ---
 
-The weight of writing is the price of a soul. Writing about God is like playing with fire; it burns the writer before it gets to the reader. May these written words not bring us condemnation but keep us safe for eternal life. Amen. 
+The weight of writing is the price of a soul. Writing about the things of God is like playing with fire; it burns and reveals the secrets of the heart. May these written words not bring us condemnation but keep us safe for eternal life. Amen. 
 
-##Favourite Resources
+## Favourite Resources
 
 1. [CatholicSaints.mobi](http://catholicsaints.mobi) 
 2. [Universalis](http://universalis.com/) for Divine Office Prayers
