@@ -2,8 +2,8 @@
 layout: post
 title: "I am the Lord – you do it to me"
 comments: false
-description: "Mar 10th 2019 Mass Reading Reflection"
-keywords: "temptation, sinners, repentance, Lent"
+description: "Mar 11th 2019 Mass Reading Reflection"
+keywords: "sheep, goat, last day, Judgement"
 ---
 
 [Monday of the First Week of Lent](https://www.ewtn.com/daily-readings/?date=2019-03-11)
