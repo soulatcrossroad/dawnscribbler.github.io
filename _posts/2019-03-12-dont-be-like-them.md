@@ -10,7 +10,7 @@ keywords: "prayer, sinners, repentance, Lent"
 
 ```
 Is 55:10-11
-PS 34:4-5, 6-7, 16-17, 18-19
+Ps 34:4-5, 6-7, 16-17, 18-19
 Mt 6:7-15
 ```
 It is entirely mortifying to be speaking to someone and they tell you, “You talk too much.” Again, it can be demoralizing if they always punctuate a conversation with, “I know. You are not telling me anything new.” This two situations stifles communication because one will struggle to find what to say to another. And since it is proven knowledge that without communication, a relationship cannot thrive, we are called to ponder on whether we really have a relationship with God in the first place.  
