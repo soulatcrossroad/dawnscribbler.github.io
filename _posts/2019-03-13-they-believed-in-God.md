@@ -10,7 +10,7 @@ keywords: "evil generation, nineveh, signs repentance, Lent"
 
 ```
 Jonah 3:1-10
-PS 51:3-4, 12-13, 18-19
+Ps 51:3-4, 12-13, 18-19
 Lk 11:29-32
 ```
 It happens that we desire to feel truly penitent and make reparation for our sins, but we lack the knowledge of what brings it about and doubt the possibility of ever getting to the point of “call a fast and put on sackcloth” and sit “in ashes”. The readings of today intimate us that it all starts with our heart because this is the incubator of our belief in God. We are called to check whether we really believe in God. 
