@@ -25,4 +25,4 @@ It clearly shows that only hearts that really seek the Lord will find Him. We ca
 
 The difference between the Ninevites and the Crowd lies in the heart – one was already open to repentance but needed a bit of prodding while the other was comfortable with the status quo and refused to consider the possibility of errors. What makes this difference really huge is that the closed and hardened heart was the one that already professed to believe in God. That is why the Gospel acclamation reads, “Even now, says the Lord, return to me with all your heart.”
 
-Therefore, we have hope, that even if we haven’t gotten to the “sackcloth and ashes” with “fasting and weeping”, our willingness to get there is all that is required to get us there. “A broken and humbled heart, O God, you will not spurn”. 
+Therefore, we have hope, that even if we haven’t gotten to “sackcloth and ashes” with “fasting and weeping”, our willingness to get there is all that is required to get us there. “A broken and humbled heart, O God, you will not spurn”. 
