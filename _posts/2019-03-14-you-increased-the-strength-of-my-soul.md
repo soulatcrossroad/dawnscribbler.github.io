@@ -9,7 +9,7 @@ keywords: "ask, Queen Esther, prayer repentance, Lent"
 [Thursday of the First Week of Lent](https://www.ewtn.com/daily-readings/?date=2019-03-14)
 
 ```
-Est 4:29, 31-33, 40-42
+Est 14:1, 3-5, 12-14
 Ps 138:1-2, 2-3, 7-8
 Mt 7:7-12
 ```
