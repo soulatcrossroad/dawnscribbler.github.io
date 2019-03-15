@@ -10,7 +10,7 @@ keywords: "ask, Queen Esther, prayer repentance, Lent"
 
 ```
 Est 4:29, 31-33, 40-42
-Ps 138:1-2ab, 2cde-3, 7c-8
+Ps 138:1-2, 2-3, 7-8
 Mt 7:7-12
 ```
 We are aware that prayer creates a channel of communication between us and God, but we may not be as aware of the effects on our  mental and psychological well-being because we are often so focused on the physical outcomes. 
