@@ -13,7 +13,7 @@ Jonah 3:1-10
 Ps 51:3-4, 12-13, 18-19
 Lk 11:29-32
 ```
-It happens that we desire to feel truly penitent and make reparation for our sins, but we doubt the possibility of ever getting to the point of “call a fast and put on sackcloth” and sit “in ashes”. The readings of today intimate us that it all starts with our heart because this is the incubator of our belief in God. We are called to check whether we really believe in God. 
+It happens that we desire to feel truly penitent and make reparation for our sins, but we doubt the possibility of ever getting to the “call a fast and put on sackcloth” and sit “in ashes” stage. The readings of today intimate us that it all starts with our heart because this is the incubator of our belief in God. We are called to check whether we really believe in God. 
 
 The most beautiful part of the First Reading, for me, is the sentence, “And the people of Nineveh believed God.” Unlike most of the Prophets who spoke, Jonah didn’t say, “thus says the Lord” or the “mouth of the Lord has spoken”; he simply said, “Yet forty days and Nineveh shall be overthrown!” Why did they believe God when was it Jonah who spoke to them? How did they make the leap from the words of Jonah to repentance?
 
