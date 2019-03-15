@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "They believed in God"
+title: "They believed God"
 comments: false
 description: "Mar 13th 2019 Mass Reading Reflection"
 keywords: "evil generation, nineveh, signs repentance, Lent"
