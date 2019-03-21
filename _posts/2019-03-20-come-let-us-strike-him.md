@@ -6,7 +6,7 @@ description: "Mar 20th 2019 Mass Reading Reflection"
 keywords: "evil, servant, chalice, Lent"
 ---
 
-[Wednesday of the Second Week of Lent](https://www.ewtn.com/daily-readings/?date=2019-03-18)
+[Wednesday of the Second Week of Lent](https://www.ewtn.com/daily-readings/?date=2019-03-20)
 
 ```
 Jeremiah 18:18-20
