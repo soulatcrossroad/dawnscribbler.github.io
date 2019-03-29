@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "…as a ransom for many"
+title: "...as a ransom for many"
 comments: false
 description: "Mar 20th 2019 Mass Reading Reflection"
 keywords: "evil, servant, chalice, Lent"
