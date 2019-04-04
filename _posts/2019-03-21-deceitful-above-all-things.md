@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "deceitful above all things"
+title: "...deceitful above all things"
 comments: false
 description: "Mar 21th 2019 Mass Reading Reflection"
 keywords: "trust, rich man, lazarus, Lent"
