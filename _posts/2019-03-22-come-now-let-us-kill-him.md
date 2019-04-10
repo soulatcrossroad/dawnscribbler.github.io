@@ -2,11 +2,11 @@
 layout: post
 title: "... Come now, let us kill him"
 comments: false
-description: "Mar 22th 2019 Mass Reading Reflection"
+description: "Mar 22nd 2019 Mass Reading Reflection"
 keywords: "Joseph, wicked tenants, dreamer, vineyard, Lent"
 ---
 
-[Thursday of the Second Week of Lent](https://www.ewtn.com/daily-readings/?date=2019-03-22)
+[Friday of the Second Week of Lent](https://www.ewtn.com/daily-readings/?date=2019-03-22)
 
 ```
 Gn 37:3-4, 12-13a, 17b-28a
