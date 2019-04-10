@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Who is a God like thee…?"
+title: "Who is a God like thee...?"
 comments: false
 description: "Mar 23rd 2019 Mass Reading Reflection"
 keywords: "prodigal son, mercy, steadfast love, forgiveness, Lent"
@@ -19,7 +19,7 @@ That God is looking out for a way to forgive us is evident in all our Readings o
 
 This free gift of mercy seems too wonderful to be a fact, and we begin to fear that it is possible to be misused or taken for granted. It can’t be. Because for us to merit this total and unconditional forgiveness, we must be ready to do a total about-turn in our way of living which starts with acknowledgment of our guilt – the harm we have done to ourselves, the grievance against our neighbour and the grievance against  God. “How many of my father's hired servants have bread enough and to spare, but I perish here with hunger (harm done to himself)! I will arise and go to my father, and I will say to him, "Father, I have sinned against heaven (grievance against God) and before you (grievance against our neighbour)”.
 
-It is by such humility – acknowledging our guilt – that the father was able to raise the prodigal son to a status even higher than he previously was. “Bring quickly the best robe, and put it on him; and put a ring on his hand, and shoes on his feet; and bring the fatted calf and kill it …” Before we sinned, we were normal sons. After we sinned and while we remain in sin, we become prodigal sons. When we recover our senses FULLY and turn back to God WHOLEHEARTEDLY, we become more than sons.
+It is by such humility – acknowledging our guilt – that the father was able to raise the prodigal son to a status even higher than he previously was. “Bring quickly the best robe, and put it on him; and put a ring on his hand, and shoes on his feet; and bring the fatted calf and kill it...” Before we sinned, we were normal sons. After we sinned and while we remain in sin, we become prodigal sons. When we recover our senses FULLY and turn back to God WHOLEHEARTEDLY, we become more than sons.
 
 The fear of this mercy of God, or the reluctance to turn to Him is because we do not totally hate all our sins. There are things that we fear to give up because it seems impossible to be able to live without them. Other things, we fear to give up, because we are waiting to gain control over ourselves before turning to God; we are not entirely sure we can give them up, and so we try to change by our own effort. But if we try for too long without success, then despair sets in and we are back at square one. 
 
