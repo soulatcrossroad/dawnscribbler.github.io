@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "“...contrite heart and humble spirit"
+title: "...contrite heart and humble spirit"
 comments: false
 description: "Mar 26th 2019 Mass Reading Reflection"
 keywords: "Joseph, wicked tenants, dreamer, vineyard, Lent"
