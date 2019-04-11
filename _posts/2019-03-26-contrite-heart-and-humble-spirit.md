@@ -3,7 +3,7 @@ layout: post
 title: "...contrite heart and humble spirit"
 comments: false
 description: "Mar 26th 2019 Mass Reading Reflection"
-keywords: "Joseph, wicked tenants, dreamer, vineyard, Lent"
+keywords: "Azariah, wicked servant, contrite, humble heart, Lent"
 ---
 
 [Tuesday of the Third Week of Lent](https://www.ewtn.com/daily-readings/?date=2019-03-26)
